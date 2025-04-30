@@ -1,0 +1,1 @@
+# Ordu-2025-3d-training
